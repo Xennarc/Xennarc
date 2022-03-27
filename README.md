@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Xennarc
+- 👀 I’m interested in building a cashapp 
+- 🌱 I’m currently learning ... everything
